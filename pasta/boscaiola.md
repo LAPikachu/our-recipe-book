@@ -12,4 +12,7 @@
 
 ## Instructions
 
-TODO: these are missing
+- boil noodles for 5 minutes
+- cut mushrooms and onions
+- add ingredients
+- serve
