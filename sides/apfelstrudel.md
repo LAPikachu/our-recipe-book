@@ -1,4 +1,4 @@
-# ApfelstrudelZZ recipe
+# Apfelstrudel recipe
 
 
 ## Ingredients
