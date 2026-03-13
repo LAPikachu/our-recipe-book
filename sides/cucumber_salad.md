@@ -6,6 +6,6 @@
 - aceto 
 - thyme
 
-## Istructions
+## Instructions
 Slice cucumber.
 Mix ingredients in a bowl.
