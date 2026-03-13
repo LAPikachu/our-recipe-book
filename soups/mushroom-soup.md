@@ -11,6 +11,8 @@
 - **4 cups** (about 950ml) vegetable or chicken broth
 - **1 cup** (240ml) heavy cream or coconut milk for a vegan option
 - **Salt and black pepper** to taste
+- **Caroline reaper** for the spice conaisseurs
+- **thyme** to taste
 - **2 tablespoons** all-purpose flour (optional, for thickening)
 - **Fresh parsley** chopped, for garnish
 - **Crusty bread** for serving
