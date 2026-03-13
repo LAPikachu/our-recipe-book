@@ -38,4 +38,4 @@
 
 ## Serving
 
-- Serve with whipped crem.
+- Serve with whipped cream.
