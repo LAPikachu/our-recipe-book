@@ -35,5 +35,8 @@
    - Just before serving, drizzle the lemon vinaigrette over the salad.
    - Toss gently to ensure all the ingredients are evenly coated with the dressing.
 
+4. **Baking**
+   - Bake salad for 30 minutes. 
+
 4. **Serve:**
    - Serve the salad immediately, ensuring it's fresh and crisp.
